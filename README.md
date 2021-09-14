@@ -1,0 +1,1 @@
+# ayt-kimya-planli-ders-foyu-32
